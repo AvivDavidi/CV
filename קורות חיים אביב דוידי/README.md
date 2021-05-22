@@ -1,2 +1,0 @@
-# Aviv Davidi CV
-
